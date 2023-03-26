@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://ftl.deekshith.eu.org/410109/None?hash=AgAD-Q" alt="nz" width="350"/>
+<img src="https://telegra.ph/file/13f96a90fcfdfd2d38a50.jpg" alt="nz" width="350"/>
 </p>
 
 ## ***Neko-Chan***
